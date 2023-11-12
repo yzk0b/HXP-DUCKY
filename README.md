@@ -1,2 +1,0 @@
-# RECHON-X
-RECHON-X 
